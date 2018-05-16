@@ -1,1 +1,12 @@
-# s18
+http://www.kk23r.com
+http://www.kkq97.com
+http://www.km350.com
+http://www.kok32.com
+http://www.kok52.com
+http://www.kok76.com
+http://www.kxffm.com
+http://www.kxggt.com
+http://www.kxwwb.com
+http://www.kyhhk.com
+http://www.kyxxt.com
+http://www.kyyhc.com
